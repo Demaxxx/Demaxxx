@@ -1,0 +1,4 @@
+- I’m @Demaxxx
+- Technology, languages and music are some of the things I like.
+- I’m currently learning some things.
+- That’s it!
